@@ -4,3 +4,4 @@ Przez eklogów i green spece i task force nadleśnictwo nie można nic zrobić a
 Do tego Papier musi być tylko z lasu nie może być podrobiony ani sztuczny papier celulozowy na banknoty do banku. Kali ci hakerzy Kali Linux stworzyli ich green spspis oni chronią lasów i są cnotliwi i anty sexocholicy. Anty bogacze. To biedaki. Oni to te blokady to taka inkwizycja.  
 Post mafia też przykuwa się do drzew. 
 Oszczędzaczy nie ma przez green spis i ochronę lasów i leśników i spekulantów bo boiją się że zawyrzą cenny w przyszłości te oszczędzacze. Leśnicy kłucą się o emisje dwutlenku węgla. A mając 100 000 zł może okazać się w przyszłości że będziemy mieć 1 000 000 000 zł. 
+Co do banków jak ma się 100 000 zł to dla banku dużo aby wypłacać duże odsestki do konta oszczędnościowego lub inwestycyjnego czy lokaty na konto bankowe. Co do oszczędzaczy banki i nadleśnictwo i spekulanaci z knestetem ich zakazali. 

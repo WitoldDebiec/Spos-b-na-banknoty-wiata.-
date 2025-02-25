@@ -10,3 +10,4 @@ Zero zmian po nowemu przez kaliego tego typa. Stare historie nadal będą takie 
 Łowcy skarbów są od kali Linux. Zeospół kali linux ratuje staroście i stare historie miłosne i pracuje dla sądów i policji i milicji jako procesor policyjny w niebie los angeles kaliforni. Oni zakazali po nowemu. 
 Bankierzy karzą wracać do straroci i starych miłosnych histori na nowo i od nowa. 
 Kali to ten tępy i lewy procesor policyjny z Policją. 
+Te rozwody po 40 to są przez stare histrie miłosne i wracanie do starych histori miłosnych na 40 urodziny. Rozwody są przez lotto i tą Policje tych śmieci. 

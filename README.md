@@ -20,3 +20,4 @@ Policja wraca do staroci z kali linux aktami FBI i do starych histori miłosnych
 To zmowa Milczenia Nadlesnicstwa i Green spis, Kaliego Linuxa, Policji, Jakuba, Anny Mari Wesołowskiej, i Judi. 
 Chcą zmuszać na 40 urodziny do pworotu do staroci. 
 Policja ma nasze akta a Kali Linux zbiera te akata na serwery FBI. 
+To grupa Kali Linux nie pozwala otworzyć firmy krzak i jej zamknąć po sukcesie tylko karzą pracować w pogotowiu. 

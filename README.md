@@ -8,3 +8,5 @@ Co do banków jak ma się 100 000 zł to dla banku dużo aby wypłacać duże od
 Przez lesniczego hakera Kaliego Linuxa znów każdy dostanie stary przydział co nowe stworzenie wszechśiwata i będzie po staremu przez tego upartego typa kaliego leśniczego hakera. A ja znów dostanę Alexę Cheng na 40 urodziny. Bez zmian. 
 Zero zmian po nowemu przez kaliego tego typa. Stare historie nadal będą takie same bez zmian. Kali to ta historyczna szmata. Kali nie pozwala na oszczędzacze z bankami. Polis 112 ten nómer to problemy Policja ratuje starocie i stare miłości.  
 Łowcy skarbów są od kali Linux. Zeospół kali linux ratuje staroście i stare historie miłosne i pracuje dla sądów i policji i milicji jako procesor policyjny w niebie los angeles kaliforni. Oni zakazali po nowemu. 
+Bankierzy karzą wracać do straroci i starych miłosnych histori na nowo i od nowa. 
+Kali to ten tępy i lewy procesor policyjny z Policją. 

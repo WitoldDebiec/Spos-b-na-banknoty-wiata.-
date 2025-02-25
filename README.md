@@ -11,3 +11,4 @@ Zero zmian po nowemu przez kaliego tego typa. Stare historie nadal będą takie 
 Bankierzy karzą wracać do straroci i starych miłosnych histori na nowo i od nowa. 
 Kali to ten tępy i lewy procesor policyjny z Policją. 
 Te rozwody po 40 to są przez stare histrie miłosne i wracanie do starych histori miłosnych na 40 urodziny. Rozwody są przez lotto i tą Policje tych śmieci. 
+Nowości jak zwykle do kosza i tylko dla najbogatszych przez hakerów i green spis leśników i nadlesnistwo i Policje minimalistów z religijnej ulicy.  

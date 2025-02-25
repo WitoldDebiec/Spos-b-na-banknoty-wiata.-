@@ -1,2 +1,2 @@
 # Spos-b-na-banknoty-wiata.-
-Podaje 2 sposoby. 
+Podaje 2 sposoby na banknoty świata. 

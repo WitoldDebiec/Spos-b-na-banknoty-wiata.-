@@ -5,3 +5,4 @@ Do tego Papier musi być tylko z lasu nie może być podrobiony ani sztuczny pap
 Post mafia też przykuwa się do drzew. 
 Oszczędzaczy nie ma przez green spis i ochronę lasów i leśników i spekulantów bo boiją się że zawyrzą cenny w przyszłości te oszczędzacze. Leśnicy kłucą się o emisje dwutlenku węgla. A mając 100 000 zł może okazać się w przyszłości że będziemy mieć 1 000 000 000 zł. 
 Co do banków jak ma się 100 000 zł to dla banku dużo aby wypłacać duże odsestki do konta oszczędnościowego lub inwestycyjnego czy lokaty na konto bankowe. Co do oszczędzaczy banki i nadleśnictwo i spekulanaci z knestetem ich zakazali. 
+Przez lesniczego hakera Kaliego Linuxa znów każdy dostanie stary przydział co nowe stworzenie wszechśiwata i będzie po staremu przez tego upartego typa kaliego leśniczego hakera. A ja znów dostanę Alexę Cheng. Bez zmian. 

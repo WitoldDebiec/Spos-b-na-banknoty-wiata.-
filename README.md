@@ -22,3 +22,4 @@ Chcą zmuszać na 40 urodziny do pworotu do staroci.
 Policja ma nasze akta a Kali Linux zbiera te akata na serwery FBI. 
 To grupa Kali Linux nie pozwala otworzyć firmy krzak i jej zamknąć po sukcesie tylko karzą pracować w pogotowiu. 
 Tak samo z oszczędzaniem czekanie po 30 50 lat. Związki z nowymi osobami o 30 lat tylko. 
+Radio drukarka kwantowa jest legalna ale przez tych od lasów państwowych karzą bawić się w  firmę krzak i drukować pieniądze z papieru celuzowego z drewna z lasu od badylarzy.  

@@ -12,3 +12,8 @@ Bankierzy karzą wracać do straroci i starych miłosnych histori na nowo i od n
 Kali to ten tępy i lewy procesor policyjny z Policją. 
 Te rozwody po 40 to są przez stare histrie miłosne i wracanie do starych histori miłosnych na 40 urodziny. Rozwody są przez lotto i tą Policje tych śmieci. 
 Nowości jak zwykle do kosza i tylko dla najbogatszych przez hakerów i green spis leśników i nadlesnistwo i Policje minimalistów z religijnej ulicy.  
+Co do prawa prawa ich przez nich wymyślone wszystkiego po nowemu bez dużych pieniedzy zabrania kwot rzędu 250 000 000 zł czy więcej. 
+Łowcy skarbów to też policja lombardzistów anty zarobkowa karze niskimi wypłatami i karze trzymać rzeczy w domu starocie karze trzymać są od Burianów. 
+Portale ranskowe są nie legalne.
+Miłość zawsze wraca stara na 40 urodziny.
+Policja wraca do staroci z kali linux aktami FBI i do starych histori miłosnych. 
